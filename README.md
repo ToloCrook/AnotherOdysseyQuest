@@ -1,3 +1,3 @@
-# AnotherOdysseyQuest
+REMOTE
 
 whenever you want...
